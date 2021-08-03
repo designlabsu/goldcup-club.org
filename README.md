@@ -1,0 +1,1 @@
+# goldcup-club.org
